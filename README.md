@@ -29,7 +29,7 @@ rangking:
 2. b
 5. c
 
-[gmail](aridwanrifani@gmail.com)
+[.................](https://www.ibm.com)
 
 ![logo liverpool](https://upload.wikimedia.org/wikipedia/hif/b/bd/Liverpool_FC.png)
 
