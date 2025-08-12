@@ -29,7 +29,7 @@ rangking:
 2. b
 5. c
 
-[email:loslibre@icloud.com](https://)
+[gmail](aridwanrifani@gmail.com)
 
 ![logo liverpool](https://upload.wikimedia.org/wikipedia/hif/b/bd/Liverpool_FC.png)
 
